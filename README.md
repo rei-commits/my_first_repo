@@ -1,2 +1,2 @@
-# my_first_repo
+Hope to enhance my computer skills and knowledge.
  
