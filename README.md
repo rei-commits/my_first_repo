@@ -1,2 +1,2 @@
-Hope to enhance my computer skills and knowledge.
- 
+Continuing to enhance my computer skills and knowledge.
+
